@@ -1,0 +1,7 @@
+Nihil é o amigo e parceiro da [[Deusa da Salvação - Kaelen]], até chegando ao ponto de não ter nenhuma mitologia do deus sozinho. Sempre está lado-a-lado com a Kaelen, servindo ela em o que ela pedir. 
+
+Na mitologia de [[Chuva de Ouro]], ele além de ser o Deus da Misericordia, ele também e o Deus da Morte. Não para ser confundido com o portador da relíquia da Morte, o elemento. No caso de Nihil, ele é a reencarnação da morte, uma assassina silenciosa, que chega a todos a qualquer momento. 
+
+Por isso que vários da seita vejam a morte como um símbolo de que serviram o proposito designada pela a Deusa, por isso que ela mandou o Nihil para terminar o serviço. Muitos até louvam a Nihil para que possa convencer a Deusa para dar a eles mais tempo na terra. Eles sacrificam cordeiros, symbols de misericordia e paz, e em alguns casos, sacrificam seus próprios filhos para ele.
+
+[[Irene Cevero]], que para todos na seita é a Kaelen em corpo humano, falou que o [[Miguel Cevero]], o irmão dela, era claramente o Nihil, que ele só precisa se lembrar do proposito dele em uma versão modificada da [[Cerimonia]], aonde a Kaelen ira "mostra ele o caminho", que significa que ela vai praticamente infectar ele com o máximo da [[Doença de Ouro]] até ele fazer o que ela quer. 

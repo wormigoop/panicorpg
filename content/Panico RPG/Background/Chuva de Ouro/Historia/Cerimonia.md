@@ -1,0 +1,1 @@
+A Cerimonia é uma parte integral não só na vida de um adolescente que cresceu dentro da seita, mas também 
